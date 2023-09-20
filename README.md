@@ -1,2 +1,2 @@
-# ShereenB
-5:39 AM SITE HUSTLE
+# AlphaSEEKER!
+This is my first take on tackling my senior thesis project. Let's get started, shall we?
